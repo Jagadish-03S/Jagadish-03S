@@ -146,6 +146,6 @@ An IoT research project exploring smart irrigation monitoring and control using 
 
 ### 💫 Learn. Build. Innovate. Repeat.
 
-**Thanks for visiting my profile!** ⭐
+**Thanks for visiting my profile!❤️** ⭐
 
 </div>
